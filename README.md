@@ -1,4 +1,4 @@
 - 👋 wazzup, i’m moonie,
-- i'm trying my best to code in school (and make a fun game in almost 2 years)
+- i'm trying my best to code in school and do my best to don't cause my brain a malfunction.
 
 [![@mooniemd's Holopin board](https://holopin.me/mooniemd)](https://holopin.io/@mooniemd)
